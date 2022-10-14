@@ -1,1 +1,0 @@
-# TEMI3kpsy
